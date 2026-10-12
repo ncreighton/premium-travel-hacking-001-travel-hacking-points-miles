@@ -1,0 +1,2 @@
+# premium-travel-hacking-001-travel-hacking-points-miles
+Stop letting your points and miles collect dust in scattered accounts. The Travel Hacking Points &amp; Miles Master System — Complete Notion Tracker turns your scattered rewards into a single, actionable strategy to book your dream trips.  This Notion template consolidates all your credit card rewards from Chase Sapphire, Amex Platinum, and more, track
